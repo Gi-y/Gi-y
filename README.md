@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning programming and the things that this community offers me
 - 🌱 I’m currently studying
 - 💞️ I’m looking to collaborate on any help I could offer
-- 📫 Reach me through telegram 
+- 📫 Reach me through telegram @g2o0s0w7ami
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I like drama and love nature
 
